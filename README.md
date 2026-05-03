@@ -1,1 +1,1 @@
-# CuzjimXE.github.io
+# cuzjimxe.github.io
